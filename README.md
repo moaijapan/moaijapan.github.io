@@ -1,0 +1,1 @@
+# moaijapan.github.io
